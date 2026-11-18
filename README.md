@@ -1,1 +1,0 @@
-# lyriusz_divulgacao
